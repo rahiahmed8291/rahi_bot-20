@@ -4,4 +4,4 @@ Oɴʟʏ Eɴᴊᴏʏ Mᴅ Bᴏᴛ
 
 Aɴʏᴏɴᴇ Cʀᴇᴀᴛᴇ Pᴀʀsᴏɴᴀʟ Oᴡɴ ʙᴏᴛ Dᴍ 
 
-ᴛɢ : @Lucifer_Co_Offline
+ᴛɢ : @Rahi_106
